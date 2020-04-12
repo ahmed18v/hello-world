@@ -1,3 +1,3 @@
 # hello-world
 Learning github essentials
-Brown boy who grew up in canada
+Africa is a country... change my mind
